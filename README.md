@@ -1,0 +1,1 @@
+# Jesse LaPointe's Notes
